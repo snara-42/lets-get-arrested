@@ -10,9 +10,10 @@ In Japan, some schoolgirls were caught by the Hyogo pref police for writing an e
         }
 
 Related wikipedia artilce (Japanese):
+
 https://ja.wikipedia.org/wiki/アラートループ事件
 
-So this is regarded as a "crime" in Japan. So let's be criminals and get arrested!
+So this is regarded as a "crime" in Japan. Why don't we be criminals and get arrested (or not...)?
 
 Enjoy criminal life!
 
